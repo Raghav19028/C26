@@ -1,0 +1,16 @@
+take a packet of oreo cream biscuit,
+now remove cream or(eat if you want to),
+crush the biscuit into small crumbs,
+take the mould and fill it 3/4 with milk,
+add the crumbs to mould, cover it and add ice-cream stick,
+let it be condensed in fridge for 2-3 hours,
+now after 2 hours,take chocolate bar and break in blocks,
+take a bowl and keep all blocks in it,
+either use an oven (if available) or take a jug of boiling water and a place the bowl on top of it,
+cover the bowl with a plate,
+take out the mould and dip it in cold water(not fully,but only the bottom side with ice cream)
+roll every mould with hand,
+and with paitence, take out the the ice-cream,
+take the chocolate syrup we made and dip ice-cream in it,
+again let it be condensed and you are good to go,
+serve cold with biscuit  
